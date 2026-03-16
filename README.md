@@ -1,8 +1,11 @@
 # Hi, I'm Mario Sánchez 👋
 
 🎓 Actuarial Science student at UDLAP  
+
 📊 Passionate about probabilityst & statistics 
+
 🏦 Interested in insurance math and monetary policy  
+
 ⚡ Fun fact: I model uncertainty for a living  
 
 
