@@ -6,7 +6,7 @@
 
 🏦 Interested in insurance math and monetary policy  
 
-⚡ Fun fact: I model uncertainty for a living  
+⚡ Fun fact: Despite being very different fields, I find both insurance math and monetary policy equally fascinating
 
 
 ### 📫 Connect with me
