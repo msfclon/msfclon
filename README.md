@@ -1,4 +1,4 @@
-# Hi, I'm Mario Sánchez 👋
+# Hi, I'm Mario👋
 
 🎓 Actuarial Science student at UDLAP  
 
