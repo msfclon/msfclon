@@ -6,7 +6,6 @@
 
 🏦 Focused on insurance mathematics, reinsurance structures and actuarial risk measures  
 
-⚡ Fun fact: Despite being very different fields, I find both insurance math and monetary policy equally fascinating
 
 
 ### 📫 Connect with me
